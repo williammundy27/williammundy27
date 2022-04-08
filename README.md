@@ -1,0 +1,4 @@
+- Hey I'm William 👋
+- Currently learning on how to get some bitches
+- 💞️ I’m looking to collaborate on getting us some bitches
+- 📫 Snapchat @tittymuncher27
